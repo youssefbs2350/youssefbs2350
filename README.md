@@ -7,6 +7,6 @@
 
 🌟 Here, you'll find a collection of my open-source projects, contributions, and collaborations. Feel free to explore my repositories and connect with me. Let's learn and grow together in the world of technology!
 
-📫 You can reach out to me at [youssefbs2350@gmail.com] or connect with me on [LinkedIn](www.linkedin.com/in/ybensalah2350).
+📫 You can reach out to me at [youssefbs2350@gmail.com] or connect with me on www.linkedin.com/in/ybensalah2350.
 
 🚀 Keep coding and keep learning! 🤓
