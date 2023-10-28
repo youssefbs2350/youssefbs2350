@@ -1,4 +1,4 @@
-## Youssef Bs
+## Hey :wave: , I'm Youssef Bs 🧔
 - 👨‍💼 Basis Consultant SAP at Wynsys
 - 🎓 Bachelor's Degree in Networks and Telecommunications
 - 📚 Studying for a Software Engineer Degree
